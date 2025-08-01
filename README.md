@@ -4,8 +4,10 @@
 💻 Full Stack Developer • AI Explorer • Maths Enthusiast  
 📍 Witbank, South Africa  
 📫 Contact: 
-            - Personal: simphiwengwenya66@gmail.com  
-            - Academic: 12149004@mylife.unisa.ac.za
+
+ 
+- Personal: simphiwengwenya66@gmail.com  
+- Academic: 12149004@mylife.unisa.ac.za
 
 ---
 
