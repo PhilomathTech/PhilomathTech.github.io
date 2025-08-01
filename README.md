@@ -1,4 +1,4 @@
-# Simphiwe Ngwenya
+# Simphiwe Rudolph Ngwenya
 
 🎓 BSc Mathematics & Applied Mathematics (Final Year @ UNISA)  
 💻 Full Stack Developer • AI Explorer • Maths Enthusiast  
